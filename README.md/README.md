@@ -1,1 +1,0 @@
-# heritage-treasures-an-in-depth-analysis-of-unesco-world-heritage
